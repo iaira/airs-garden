@@ -1,0 +1,1 @@
+*[[2024, a year at work|longer-form post on 2024 here]]*
