@@ -1,5 +1,8 @@
-#### Beginnings: Unrising Action
-
+---
+title: 2024, a year at work
+draft: true
+---
+ 
 The year started off with a one-day trip to Medan. A sit-down interview gig, talking heads style, two persons. It was a cold January, and the sweat didn't run down our shirts. It felt like a good start, easing myself into the rhythms of work again, feeling my fingers on the knobs, and the voices I'm recording hasn't rid itself of meaning. They tend to do that when you listen to them for hours on end, day by day. Voices turn into sound, and your brain separates them to signal and noise. Ignore the signal. The real signal is the noise. That's when you know when something's wrong, and you need to fix it.
 
 We had beef broth noodles in Medan. A big part of the travel part of the job is the food. To eat is to live, and these noodles felt like life itself. Like a health potion. It was rich and creamy, red and soft, and my glasses fogged up but I didn't care that i couldn't see it, i was _in_ it. They had these massive pots that sat on constant fire. Big, simmering pots of meat and all things good with Indonesia.
