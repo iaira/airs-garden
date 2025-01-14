@@ -1,3 +1,7 @@
+---
+tags: []
+---
+
 In the front porch of my childhood home there was a wind chime hanging off the roof, just underneath a young mango tree. At first there was just noise, an incoherent babble of everything that means and evokes nothing. But for some unknown reason i stopped, and i listened. And at that moment, noise turned into sound. And sound turned into feelings, prehistoric markers that told stories through genetic code —  the sound of rain evokes a sense of which meaning is lost when we try to translate it into language, as with our feet against grass, of water flowing, of thunder, of everything that makes sound.
 
 And then, language turned sound into meaning. A word that means something, a sentence, an utterance, a prayer. In this sense, the crystallization of language happened first not in the domain of our vision, but within the domain of hearing — of sound. We understand and shape our world in the abstraction layer that is language, firstly through sound. A man once stood upon a river and conjured a sound that correlates to that. We argue, love, kill, and reproduce based on the sounds that we make.

@@ -1,7 +1,7 @@
 ---
 title: "Book Review: The Overstory"
 tags:
-  - finished
+  - review
 ---
 #### My review on Literal.me, and my take
 
