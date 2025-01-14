@@ -9,7 +9,7 @@ To me, hard sci-fi has a different appeal to films, or fiction in general, becau
 
 I think we're due for a cinema of the real, but not one of stagnation, sickness, and pain. We know pain very well, with all the navel-gazing films around. Do we know our world that well? have we done enough stargazing?
 
-> [!Chat]
+> [!NOTE] ChatGPT
 > 
 > ***note that chat, even with custom prompts, is extremely sycophantic.***
 > 
