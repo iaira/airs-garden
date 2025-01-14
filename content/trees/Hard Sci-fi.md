@@ -1,5 +1,8 @@
 ---
 tags:
+  - fiction
+  - genre
+  - in-progress
 ---
 A kind of sci-fi where plausibility and proximity to reality is of utmost importance. Because *real things have weight.*
 
