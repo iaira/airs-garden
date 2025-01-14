@@ -1,4 +1,3 @@
-*[[2024, a year at work|a longer-form post on 2024]]*
 
 ![Milna Crunch](https://www.youtube.com/watch?v=a-uNR8o-RUs)
 
